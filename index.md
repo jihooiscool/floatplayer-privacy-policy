@@ -52,7 +52,7 @@ If this policy changes, the new version will be published at this address with a
 
 ## Contact
 
-Questions about this policy: **jihooiscool@gmail.com**
+Questions about this policy: **sunnytomorrow06@gmail.com**
 
 ---
 
@@ -103,4 +103,4 @@ FloatPlayer는 아동을 대상으로 하지 않으며 누구의 데이터도 �
 
 ## 문의
 
-이 방침에 관한 문의: **jihooiscool@gmail.com**
+이 방침에 관한 문의: **sunnytomorrow06@gmail.com**
